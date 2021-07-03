@@ -1,5 +1,5 @@
 - 👋 Hi, I’m sadhanavijay
-- 👀 I’m interested in coding,science and mat
+- 👀 I’m interested in coding,science and math
 - 🌱 I’m currently learning 8th grade 
 - 💞️ I’m looking to collaborate on my white hat jr projects
 - 📫 to reach me 9551420255
